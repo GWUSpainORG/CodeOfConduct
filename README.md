@@ -109,7 +109,7 @@ Fuente: [http://disabledfeminists.com/2010/11/19/what-is-ableism-five-things-abo
 
 - Tanto hombre como mujer (ejemplo: andrógino)    
 - Ni hombre ni mujer (agénero, neutro, no sexuados)    
-- moviéndose entre dos o más géneros (“gender fluid”)
+- Moviéndose entre dos o más géneros (“gender fluid”)
 - Tercer género u otro género (incluye a aquellos que prefieren "genderqueer" o "no binario" para describir su género sin etiquetarlo de otra manera) 
 - Tener una superposición o un espectro borroso de género, orientación y/o sexo (“girlfags” y “guydykes”)
 - Aquellos de género "queer", en presentación o de otra manera, que pueden o no verse a sí mismos como no binarios o que tienen un género que es “queer”; esta categoría también puede incluir a aquellos que son conscientemente políticos o radicales en su comprensión de ser “genderqueer".
